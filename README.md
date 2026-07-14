@@ -199,7 +199,6 @@ For any queries or suggestions, feel free to reach out:
 
 - 📧 Email: pranjal2004upadhyay@gmail.com
 - 💼 LinkedIn: https://linkedin.com/in/pranjalupadhyay0142
-- 🐦 Twitter: https://twitter.com/upadhyaypranjal
 
 ---
 
